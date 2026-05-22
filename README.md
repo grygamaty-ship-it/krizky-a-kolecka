@@ -1,1 +1,0 @@
-# krizky-a-kolecka
